@@ -1,6 +1,6 @@
 Projects
 ---
 
-This space is to put some of the ideas for possible projects that can be 
-organised by the Mexican Society of the University of Birmingham.
+This space has the purpose to put and document some of the ideas for possible projects 
+to promote the Mexican Culture organised by the Mexican Society of the University of Birmingham.
 
